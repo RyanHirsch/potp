@@ -6,3 +6,4 @@
 1. Always leave early to make up for coming in late.
 1. If I'm not worried about it you shouldn't worry about it.
 1. Most monkeys are bears.
+1. Never do things the right way. Do them the wrong way, then they are easier.
