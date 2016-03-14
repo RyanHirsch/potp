@@ -9,3 +9,4 @@
 1. Never do things the right way. Do them the wrong way, then they are easier.
 1. If you're just hiding your ignorance, then do it.
 1. Stop thinking.
+1. Don't coddle the horrible at the expense of the valuable.
