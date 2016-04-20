@@ -10,3 +10,5 @@
 1. If you're just hiding your ignorance, then do it.
 1. Stop thinking.
 1. Don't coddle the horrible at the expense of the valuable.
+1. There's milliseconds, and then, there's like, seconds.
+1. Hey!
