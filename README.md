@@ -12,3 +12,4 @@
 1. Don't coddle the horrible at the expense of the valuable.
 1. There's milliseconds, and then, there's like, seconds.
 1. Hey!
+1. Smart people are dumb.
