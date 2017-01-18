@@ -14,3 +14,4 @@
 1. Hey!
 1. Smart people are dumb.
 1. Don't make me spoon you!
+1. You ever stuffed a sloth's ass full of tea leaves?
