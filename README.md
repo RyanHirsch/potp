@@ -18,3 +18,4 @@
 1. Every day I care less and less.
 1. You can't lose if you don't run.
 1. I want my nub back.
+1. I hate everyone. I hate people.
