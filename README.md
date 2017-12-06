@@ -21,3 +21,4 @@
 1. I hate everyone. I hate people.
 1. My lack of feedback is a positive sign.
 1. All Andrews have really good one-liners.
+1. Never puke into a wicker trash can.
