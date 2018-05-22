@@ -22,3 +22,4 @@
 1. My lack of feedback is a positive sign.
 1. All Andrews have really good one-liners.
 1. Never puke into a wicker trash can.
+1. There is nothing wrong with extortion.
