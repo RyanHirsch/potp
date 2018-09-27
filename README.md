@@ -24,3 +24,4 @@
 1. Never puke into a wicker trash can.
 1. There is nothing wrong with extortion.
 1. This is what I do here. I sit there and let you take a picture of me.
+1. Nobody's sick of Lang. You can't get sick of Lang.
