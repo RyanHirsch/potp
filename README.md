@@ -25,3 +25,4 @@
 1. There is nothing wrong with extortion.
 1. This is what I do here. I sit there and let you take a picture of me.
 1. Nobody's sick of Lang. You can't get sick of Lang.
+1. If all those upvotes make you feel good, I got something that'll make you feel _real_ good.
