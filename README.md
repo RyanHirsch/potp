@@ -26,3 +26,5 @@
 1. This is what I do here. I sit there and let you take a picture of me.
 1. Nobody's sick of Lang. You can't get sick of Lang.
 1. If all those upvotes make you feel good, I got something that'll make you feel _real_ good.
+1. Nothing ever makes me happy.
+1. You guys are different than me. If things are in bold, I don't read it.
