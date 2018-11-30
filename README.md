@@ -29,4 +29,4 @@
 1. Nothing ever makes me happy.
 1. You guys are different than me. If things are in bold, I don't read it.
 1. If you keep kicking the can, it just gets more dented.
-1. I ain't no one's mommy.
+1. I ain't no one's mommy. (In response to someone saying "Lang is the umami for our team.")
