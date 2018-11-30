@@ -28,3 +28,5 @@
 1. If all those upvotes make you feel good, I got something that'll make you feel _real_ good.
 1. Nothing ever makes me happy.
 1. You guys are different than me. If things are in bold, I don't read it.
+1. If you keep kicking the can, it just gets more dented.
+1. I ain't no one's mommy.
