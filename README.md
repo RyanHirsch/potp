@@ -32,3 +32,4 @@
 1. I ain't no one's mommy. (In response to someone saying "Lang is the umami for our team.")
 1. I'm like a cat. I like to bathe in the sun.
 1. Don't thank him. It makes you look weak. Never thank someone else.
+1. I actually find sh\*t to be quite warm.
