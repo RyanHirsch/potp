@@ -33,3 +33,4 @@
 1. I'm like a cat. I like to bathe in the sun.
 1. Don't thank him. It makes you look weak. Never thank someone else.
 1. I actually find shit to be quite warm.
+1. If you're going to say something PC, then I don't wanna hear it.
