@@ -34,3 +34,4 @@
 1. Don't thank him. It makes you look weak. Never thank someone else.
 1. I actually find shit to be quite warm.
 1. If you're going to say something PC, then I don't wanna hear it.
+1. I don't do any work until somebody asks for it twice.
