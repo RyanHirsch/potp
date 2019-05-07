@@ -35,3 +35,4 @@
 1. I actually find shit to be quite warm.
 1. If you're going to say something PC, then I don't wanna hear it.
 1. I don't do any work until somebody asks for it twice.
+1. Anytime I know something and someone else doesn't, I feel the need to shame them.
