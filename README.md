@@ -36,3 +36,6 @@
 1. If you're going to say something PC, then I don't wanna hear it.
 1. I don't do any work until somebody asks for it twice.
 1. Anytime I know something and someone else doesn't, I feel the need to shame them.
+1. I make other people feel bad about themselves because it makes me feel better about myself.
+1. Unfortunately, the only one who has done something amazing on this team is me.
+1. Don't be angry because I'm better than you.
