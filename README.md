@@ -39,3 +39,4 @@
 1. I make other people feel bad about themselves because it makes me feel better about myself.
 1. Unfortunately, the only one who has done something amazing on this team is me.
 1. Don't be angry because I'm better than you.
+1. I don’t care if we’re heading to New Mexico or Seattle, I need to at least know I am heading west, then someone can tell me when I need to go North or South.
